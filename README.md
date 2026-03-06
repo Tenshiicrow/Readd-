@@ -6,7 +6,7 @@ interests ー rainworld, dandys world, vrc, bsd, mo4, hollow knight, madoka, mag
 
 sexuality/gender ー bi / trans
 
-spawnist 
+spawnist (Feel free 2 ask about it)
 
 status 
 
