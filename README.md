@@ -20,4 +20,4 @@ away = w2i
 
 busy = iwc / w2i
 
-ask 4 discord
+Discord is DivineSpawnn
