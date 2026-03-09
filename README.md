@@ -10,6 +10,8 @@ sexuality/gender ー bi / trans
 
 spawnist (Feel free 2 ask about it)
 
+angelkin
+
 status 
 
 online = int
