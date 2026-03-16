@@ -12,8 +12,6 @@ sexuality/gender ー bi / trans
 
 angelkin
 
-status 
-
 online = int
 
 looking 4 chat = int
