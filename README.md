@@ -8,7 +8,7 @@ system (Mostly fictives)
 
 interests ー rainworld, dandys world, vrc, bsd, mo4, hollow knight, madoka, magical girls.
 
-sexuality/gender ー bi / trans
+bi / trans
 
 online = int
 
