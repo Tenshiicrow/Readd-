@@ -4,7 +4,7 @@ names ー Divine / spawnzy / tenshi
 
 13
 
-system (Mostly fictives)
+system
 
 interests ー rainworld, dandys world, vrc, bsd, mo4, hollow knight, madoka, magical girls.
 
