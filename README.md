@@ -1,21 +1,11 @@
 ![image](https://github.com/user-attachments/assets/39b7b8e3-7c26-42b5-8f0a-24924e8c34ee)
 
-names ー Divine / spawnzy / tenshi
+names ー tenshi
 
 13
 
-system (Medically reconized i think) 
-
 interests ー rainworld, dandys world, vrc, bsd, mo4, hollow knight, madoka, magical girls.
 
-bi / trans
+trans
 
-online = int
-
-looking 4 chat = int
-
-away = w2i
-
-busy = iwc / w2i
-
-Dni: Syscourse
+no dni
