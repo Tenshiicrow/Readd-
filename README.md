@@ -8,4 +8,6 @@ trans
 
 no dni
 
-add my discord tenshi.crow 👀
+add my discord tenshi.crow
+
+pls int if ur 17+
