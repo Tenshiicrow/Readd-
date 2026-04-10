@@ -9,3 +9,5 @@ interests ー rainworld, dandys world, vrc, bsd, mo4, hollow knight, madoka, mag
 trans
 
 no dni
+
+add my discord tenshi.crow 👀
