@@ -1,4 +1,4 @@
-13 yrs old
+14 yrs old
 
 interests ー rainworld, dandys world, vrc, bsd, mo4, hollow knight, madoka, magical girls, vrc
 
