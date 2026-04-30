@@ -1,7 +1,2 @@
-14 yrs old
+<img width="300" height="30" alt="image" src="https://github.com/user-attachments/assets/d2628e34-019c-4b5f-b824-a006bff3d13d" />
 
-interests ー rainworld, dandys world, vrc, bsd, mo4, hollow knight, madoka, magical girls, vrc
-
-trans
-
-no dni
