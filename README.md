@@ -2,14 +2,10 @@
 
 ⟡     Irl magical girl
 
-
-
 Pronouns ๋࣭ He / any
 
-
-
-System !
-
-
+14 !
 
 Any other magical girls int (.◜◡◝)
+
+Always int
