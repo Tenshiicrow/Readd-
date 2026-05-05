@@ -5,3 +5,5 @@ No dni
 trans
 
 Very dumb 🤔
+
+always int 
