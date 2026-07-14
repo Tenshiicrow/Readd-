@@ -2,6 +2,4 @@
 
 No dni
 
-sys
-
-endo neutral 
+did system
